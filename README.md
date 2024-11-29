@@ -1,0 +1,2 @@
+# Kingrepost
+Only one king
